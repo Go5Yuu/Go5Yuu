@@ -13,6 +13,8 @@
 
 ─── Chronically AFK ── დ ── Whisp 2 Int ───
 
+・┆✦ʚC+Hɞ✦ ┆・
+
 ۩❦۩¤═══¤ Profic ¤═══¤۩❦۩
 
 ≪ °Read Strawpage ≫ °❈° ≪ Leave a gimmick° ≫
