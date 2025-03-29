@@ -2,14 +2,14 @@
 <img width = "60%" src="https://64.media.tumblr.com/530a3b9f2805d724a9863af25ddb8b35/0e39997d26b00f7f-ff/s1280x1920/e4a41eb428a3e9c6b572cc0c391d91ecd03f260f.pnj">
 <img width = "55%" src="https://64.media.tumblr.com/e6467fe24e192aee5494f5dca029fef0/abd43fd6b15dc4e8-7b/s1280x1920/752eeedf1c5350bfa9c36664b72a38e50171a22b.pnj">
 <img width = "60%" src="https://64.media.tumblr.com/639a0e3907df46c9b4af7375da481713/0e39997d26b00f7f-01/s1280x1920/493975f1030fdf0172ae29709cdb74f788c3996b.pnj">
-<img width = "55%" src="https://media.discordapp.net/attachments/1315102096873361419/1355643612301365268/SIX_9692CCF7-C659-482B-8CE6-025B91A3565D.png?ex=67e9acff&is=67e85b7f&hm=e121d554e98af0e1253e6dbd4c45731a8a1144320c59031992c14e471f15673d&=&format=webp&quality=lossless&width=948&height=771">
+<img width = "55%" src="https://64.media.tumblr.com/b170f3f7bd4ee3220ebf0cc7353abc7e/29814480d8c79126-8e/s640x960/a7b0cff1785b327eac650ba4f94c6646cc822552.pnj">
   
 ➥GO5YUU
 ➠2003
 ➠He/Him
 ➠Married
 
-<img width = "50%" src="https://64.media.tumblr.com/258ce04ef8e781c91b2e6e7578213c25/fe819061e7095077-c8/s1280x1920/7204a6554144dd43fa94cc84c49625307465db2f.jpg">
+<img width = "50%" src="https://media.discordapp.net/attachments/1315102096873361419/1355643612301365268/SIX_9692CCF7-C659-482B-8CE6-025B91A3565D.png?ex=67e9acff&is=67e85b7f&hm=e121d554e98af0e1253e6dbd4c45731a8a1144320c59031992c14e471f15673d&=&format=webp&quality=lossless&width=948&height=771">
 
 ─── Chronically AFK ── დ ── Whisp 2 Int ───
 
