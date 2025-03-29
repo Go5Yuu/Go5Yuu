@@ -16,5 +16,5 @@
 
 ≪ °Read Strawpage ≫ °❈° ≪ Leave a gimmick° ≫
 
-<img width = "50%" src="https://64.media.tumblr.com/9a0065ae267ee61521a60ec8f9124a54/03cf0e153adff658-71/s500x750/5d7ad2cdd65ee4739b97a4b2810bf438e7311ed6.gifv">
+<img width = "50%" src="https://media.discordapp.net/attachments/1315102096873361419/1355641475328639217/SIX_5875210A-C943-4E2E-BB48-00CEB5C890B5.png?ex=67e9ab02&is=67e85982&hm=6aa4db86dacbbc3f300a79b2420d8c4ad180cb331726418deadf29a3386a923a&=&format=webp&quality=lossless&width=1345&height=448">
 <img width = "65%" src="https://64.media.tumblr.com/ec1557c4b8f6027f53eb7fdcbc5ee13d/74a182caf647fb15-b0/s1280x1920/696a6b7c23f429a668795b2f8cc3e5251190816f.pnj">
