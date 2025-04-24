@@ -5,6 +5,7 @@
 <img width = "55%" src="https://64.media.tumblr.com/b170f3f7bd4ee3220ebf0cc7353abc7e/29814480d8c79126-8e/s640x960/a7b0cff1785b327eac650ba4f94c6646cc822552.pnj">
  
  ![](https://komarev.com/ghpvc/?username=Go5Yuu&color=lightgrey&style=for-the-badge&label=FANS)
+ 
 ➥GOON
 ➠2003
 ➠He/Him
