@@ -3,8 +3,8 @@
 <img width = "55%" src="https://64.media.tumblr.com/e6467fe24e192aee5494f5dca029fef0/abd43fd6b15dc4e8-7b/s1280x1920/752eeedf1c5350bfa9c36664b72a38e50171a22b.pnj">
 <img width = "60%" src="https://64.media.tumblr.com/639a0e3907df46c9b4af7375da481713/0e39997d26b00f7f-01/s1280x1920/493975f1030fdf0172ae29709cdb74f788c3996b.pnj">
 <img width = "55%" src="https://64.media.tumblr.com/b170f3f7bd4ee3220ebf0cc7353abc7e/29814480d8c79126-8e/s640x960/a7b0cff1785b327eac650ba4f94c6646cc822552.pnj">
+ 
  ![](https://komarev.com/ghpvc/?username=Go5Yuu&color=lightgrey&style=for-the-badge&label=FANS)
-  
 ➥GOON
 ➠2003
 ➠He/Him
